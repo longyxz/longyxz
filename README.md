@@ -1,9 +1,7 @@
 ### Hi, I'm Long Dinh <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -  [ldxzy][website]  
 
 
-- 🔭 Passion in something ... (secret😊)
-- 💪 2023 Goals: Learning many things in Javascript, C++, Python
-- ⭐: listening, playing games, coding ... 😅
+- Treat me like white tees 👽👽
 
 ### :zap: GitHub Stats
 
